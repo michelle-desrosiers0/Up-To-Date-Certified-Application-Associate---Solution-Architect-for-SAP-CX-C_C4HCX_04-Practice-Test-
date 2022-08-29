@@ -1,0 +1,1 @@
+# Up-To-Date-Certified-Application-Associate---Solution-Architect-for-SAP-CX-C_C4HCX_04-Practice-Test-
